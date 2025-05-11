@@ -25,7 +25,7 @@ Ainda não possuo experiência profissional formal, mas já participei de divers
 ## 🌍 Idiomas
 
 - 🇧🇷 **Português**: Língua nativa  
-- 🇺🇸 **Inglês (avançado)**: Comunicação eficaz aprendida com jogos, filmes, séries e músicas  
+- 🇺🇸 **Inglês (avançado)**: Comunicação eficaz adquirida com jogos, filmes, séries e músicas  
 - 🌐 Futuro: Interesse em aprender **Russo**, **Francês** ou **Espanhol**
 
 ---
